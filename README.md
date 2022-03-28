@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://859dimaamid.github.io/rsschool-cv/cv
